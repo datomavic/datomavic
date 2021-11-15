@@ -7,3 +7,5 @@
 💞️ I’m looking to collaborate on any projects involving web development.
 
 📫 How to reach me: datomavic@gmail.com
+
+📍 El Paso, TX
